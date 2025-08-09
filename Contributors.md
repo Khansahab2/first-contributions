@@ -21,6 +21,7 @@ Hey Hi everyone
 - [Joshua❤️Prashanth](https://github.com/JoshuaPrashanth)
 -[Karthika Suresh](https://github.com/Karthika125)
 - donman420🍃
+- [Abuzar Khan](https://github.com/Khansahab2)
 - [Nate](https://github.com/ipdor)
 - [Arthur Döhler](https://github.com/herrdohler)
 - Mrunali
